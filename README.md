@@ -1,0 +1,1 @@
+The new era comes under the umbrella of blockchain. ENCOIN pursuits the the fulfillment of its task.
